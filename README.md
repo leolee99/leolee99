@@ -1,4 +1,4 @@
-**Hi, I'm Leo.Lee.** 👋
+**Hi, I'm Hao Li (Leo.Lee).** 👋
 
 I'm pursuing a master's degree at the University of Electronic Science and Technology of China.
 
